@@ -1,0 +1,1 @@
+# CardsModuleSOLID_AyD2
